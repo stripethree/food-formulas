@@ -20,8 +20,8 @@
 * 1/2 tsp cayenne pepper
 
 ### Assembly
-* combine all ingredients into a crock pot
-* cook on low for 6 hours
+* Combine all ingredients into a crock pot
+* Cook on low for 5 hours
 
 ### Notes
 * [Source: Homemade Chili Seasoning]

@@ -7,10 +7,10 @@
 * 1/2 tsp pink Himalayan salt
 
 ### Assembly
-* combine all ingredients into a medium saucepan and bring to a boil
-* stir once, cover, reduce heat to low and simmer for 18 minutes
-* let stand covered for 5 minutes
-* fluff with fork and serve
+* Combine all ingredients into a medium saucepan and bring to a boil
+* Stir once, cover, reduce heat to low and simmer for 18 minutes
+* Let stand covered for 5 minutes
+* Fluff with fork and serve
 
 ### Notes
 * [Source]
