@@ -1,0 +1,26 @@
+# Spinach Balls
+
+### Components
+
+* 20 oz frozen chopped spinach
+* 4 large eggs or equivalent egg replacer
+* 1/2 c minced onion
+* 3/4 c grated parmesan cheese
+* 3/4 c lightly salted butter
+* 1/2 tsp dried thyme
+* 1/4 tsp black pepper
+* 1/4 tsp ground nutmeg
+* 2 1/2 cups crumb type herb stuffing mix
+
+### Assembly
+* Cook spinach according to package directions, drain and squeeze dry
+* Beat eggs or prepare egg replacer in large bowl
+* Stir remaining ingredients except stuffing mix into eggs
+* When well blended, stir in the stuffing mix and let stand 20 min. while mixture firms slightly
+* Shape into balls using approx. 1 rounded teaspoonful for each ball
+* Arrange in single layer on ungreased baking sheet
+* Bake at 350 for 15 - 20 min or until hot and lightly browned
+* Can be cooled, wrapped and frozen. Reheat on a baking sheet approx. 10 - 15 min.
+
+### Notes
+Neat Egg suffices as a good enough binding substitute without compromising flavor. I tend to think this recipe could use a little salt. I also sometimes like to use pre-seasoned/Italian style bread crumbs.
