@@ -32,6 +32,8 @@
 * Serve with fresh cilantro, tortilla chips, cheese, avocado, etc.
 
 ### Notes
+For the chicken, I used a whole roasted chicken from HEB. Got as much meat out of it as possible, discarded the skin.
+
 Some notes from Kalinda's original recipe that I might make use of in the future:
 * deglaze veggie pan with broths to get all the flavors!
 * use a dutch oven for soups since you can use an emulsifier and they seem to enhance the flavor
