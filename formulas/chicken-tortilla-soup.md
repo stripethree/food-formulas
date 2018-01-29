@@ -19,7 +19,7 @@
 1 (10 oz) can enchilada sauce
 4 c low sodium beef broth
 4 c low sodium chicken broth
-6 chile de arbol, dried
+6 chile de árbol, dried
 1 chicken bullion cube
 
 ### Assembly
