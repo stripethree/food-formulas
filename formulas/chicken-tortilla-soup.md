@@ -23,7 +23,7 @@
 1 chicken bullion cube
 
 ### Assembly
-* Sauteé onion, bell pepper, and jalapeños in olive oil until onions are translucent
+* Sauté onion, bell pepper, and jalapeños in olive oil until onions are translucent
 * Stir in garlic and spices
 * Add chopped tomatoes and bring to a simmer
 * Place shredded chicken in a large pot and cover with simmered tomato and vegetable mixture
