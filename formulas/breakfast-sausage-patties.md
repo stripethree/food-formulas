@@ -31,7 +31,7 @@
 
 ### Notes
 Based loosely on [this recipe](http://www.travelinglowcarb.com/5068/low-carb-sausage-biscuit-recipe/).
-Recipe makes about 15 patties.
+Recipe makes about 12 patties.
 
 I decided I want to forgo store bought "breakfast sausage" and do this from scratch. I based the changes on [this recipe](https://www.thespruce.com/homemade-pork-breakfast-sausage-3060593).
 
