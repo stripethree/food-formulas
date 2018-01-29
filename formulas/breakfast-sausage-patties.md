@@ -6,18 +6,19 @@
 * 2 large eggs or equivalent egg replacer
 * 1/4 c diced onion
 * 1/4 c diced green bell pepper
+* 1 jalapeño, diced
 * 1/2 c almond flour
 * 1/4 c shredded sharp cheddar cheese
 * 1/4 c grated parmesan cheese
 * 1 lb ground pork
-* 1/2 teaspoon kosher salt
-* 1/2 teaspoon fresh ground black pepper
-* 1/2 teaspoon ground thyme
-* 1/2 teaspoon dried rubbed sage
-* 1 teaspoon light or darkbrown sugar, packed
-* 1/4 teaspoon ground allspice
-* 1/4 teaspoon red pepper flakes, optional
-* 1/8 teaspoon ground nutmeg
+* 1 ts salt
+* 1 ts ground black pepper
+* 1/2 ts ground thyme
+* 1/2 ts dried rubbed sage
+* 2 tbs light or dark brown sugar, packed
+* 1/4 ts ground allspice
+* 1/4 ts red pepper flakes, optional
+* 1/8 ts ground nutmeg
 
 
 ### Assembly
@@ -30,7 +31,7 @@
 
 ### Notes
 Based loosely on [this recipe](http://www.travelinglowcarb.com/5068/low-carb-sausage-biscuit-recipe/).
-Recipe makes 12-14 patties.
+Recipe makes about 15 patties.
 
 I decided I want to forgo store bought "breakfast sausage" and do this from scratch. I based the changes on [this recipe](https://www.thespruce.com/homemade-pork-breakfast-sausage-3060593).
 
