@@ -18,6 +18,7 @@ _Chocolate_
 * 1 tsp vanilla
 * 1 tsp baking soda
 * 1/2 t salt
+* 1 1/2 c flour
 
 ### Assembly
 * Blend _filling_ ingredients, except chocolate chips, well with a mixer.
@@ -31,3 +32,6 @@ _Chocolate_
 I tend to use Neat Egg and coconut oil in this recipe.
 I also use a mini muffin pan which usually yields about
 48 cupcakes with the quantities listed.
+
+Best served warm. If necessary, 10s in the microwave warms the cream cheese filling and gets just the right melt on the chocolate chips.
+
