@@ -2,11 +2,16 @@
 
 ### Components
 
-* 1 large onion, diced small (set aside 1/2 for the sauce)
-* 4 cloves of minced garlic (set aside 1/2 for the sauce)
+* 1/3 lb ground beef
+* 1/3 lb ground pork
+* 1/3 lb ground veal
+* 1 large onion, diced small
+* 4 cloves of minced garlic
 * 1/3 cup almond flour
 * 2 eggs, whisked
 * 1/4 cup of fresh, chopped flat-leaf parsley
+* 1/4 grated parmesan cheese
+* 1 ts salt
 * Pinch of red pepper flakes
 
 _Sauce_
@@ -27,7 +32,7 @@ _Sauce_
 * Add remaining ingredients for the sauce into crock pot
 * Break apart the tomatoes in the crock pot so they are not whole
 * Set crockpot to low
-* Add ground beef to the bowl you set aside of the chopped onions and minced garlic
+* Add beef, pork, and veal to the bowl you set aside of the chopped onions and minced garlic
 * Add the rest of the meatball ingredients to the same bowl
 * GENTLY combine all the meatball ingredients with your hands – do not over mix or your meatballs will turn out tough
 * Preheat a medium or large frying pan with few tablespoons of coconut or olive oil over medium heat
@@ -38,4 +43,4 @@ _Sauce_
 * Garnish with fresh parsley and serve hot
 
 ### Notes
-* [Source]
+Since I cannot always find ground veal, I have made this recipe with 1/2 lb ground beef and 1/2 lb ground pork with excellent results. I have also used Neat Egg with success in place of real eggs.
