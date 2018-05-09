@@ -9,16 +9,17 @@
 * 1/2 c feta
 * 1/2 c shredded spicy cheddar cheese
 * 8 oz cream cheese
+* 1 1/2 tbs minced garlic
 
 ### Assembly
 * Cook bacon on the stovetop until crispy and set aside to cool
-* Sauteé onion and jalapeño in bacon grease
+* Sauteé onion, jalapeño, and garlic in bacon grease
 * Mix onion, jalapeño, and cheeses in a bowl
 * Once bacon has cooled, crumble and fold into cheese mixture
 * Wash mushrooms, remove stems and place on a baking sheet
-* Bake at 375 degrees for 10-23 minutes, until water forms in the caps
+* Bake at 350 degrees for 8-10 minutes, until water forms in the caps
 * Remove mushrooms from the oven, let cool, and empty water from caps
-* Add filling mixture to mushrooms caps and bake at 375* for 10-12 minutes, until cheeses have melted together
+* Add filling mixture to mushrooms caps and bake at 350 degrees for 5-7 minutes, until cheeses have melted together
 
 ### Notes
 I have also used yellow or sweet onions instead of red for this recipe.
