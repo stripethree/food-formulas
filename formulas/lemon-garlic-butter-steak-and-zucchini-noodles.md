@@ -39,4 +39,4 @@ _Marinade_
 * Doubled the red pepper from the original recipe because spicy is good
 * Substituted 3 tbs bottled lemon juice for the juice and zest of one lemon
 * Substituted 2 tbs pre-chopped garlic for the 4 minced garlic cloves
-* Used pre-made zucchini noodles, approximately 32 oz worth
+* Used pre-made zucchini noodles, 10.5 oz worth
