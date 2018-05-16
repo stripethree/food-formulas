@@ -43,3 +43,5 @@ This recipe was inspired by several others:
 * [Berries and Cream Puff Pastries with Cream Cheese Drizzle](http://foodtasia.com/berry-and-cream-cheese-puff-pastries-step-by-step-photos/)
 * [Mini Cheesecake Cups](https://www.puffpastry.com/recipe/mini-cheesecake-cups/)
 * [Supreme Strawberry Topping](https://www.allrecipes.com/recipe/43914/supreme-strawberry-topping/)
+
+I made the first recipe a couple times, then accidentally bought puff pastry shells instead of sheets one time. I went looking for an alternative and found the second recipe. Then I remembered that cheesecake is even better with fruit topping and I found the third recipe.
