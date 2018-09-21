@@ -26,8 +26,8 @@
 * Add remaining ingredients except sausage and mix together
 * Add sausage and mix in by hand
 * Form into ~3 inch diameter patties and place on a cookie sheet
-* Bake at 350 degrees for 10 minutes or until starting to brown
-* Flip patties and bake for an additional 10 minutes, or until brown
+* Bake at 350 degrees for 22-25 minutes or until starting to brown
+* Broil at 525 degree for an additional 8-10 minutes until tops are golden brown
 
 ### Notes
 Based loosely on [this recipe](http://www.travelinglowcarb.com/5068/low-carb-sausage-biscuit-recipe/).
