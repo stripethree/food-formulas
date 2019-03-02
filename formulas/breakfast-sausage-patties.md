@@ -26,8 +26,8 @@
 * Add remaining ingredients except sausage and mix together
 * Add sausage and mix in by hand
 * Form into ~3 inch diameter patties and place on a cookie sheet
-* Bake at 350 degrees for 10 minutes or until starting to brown
-* Flip patties and bake for an additional 10 minutes, or until brown
+* Bake at 350 degrees for 22-25 minutes or until starting to brown
+* Broil at 525 degrees for an additional 8-10 minutes until tops are golden brown
 
 ### Notes
 Based loosely on [this recipe](http://www.travelinglowcarb.com/5068/low-carb-sausage-biscuit-recipe/).
@@ -36,5 +36,4 @@ Recipe makes about 12 patties.
 I decided I want to forgo store bought "breakfast sausage" and do this from scratch. I based the changes on [this recipe](https://www.thespruce.com/homemade-pork-breakfast-sausage-3060593).
 
 * I use Neat Egg for this recipe and find that it works great as the necessary binding agent.
-* If you like a more golden brown color on the finished patties, broil them on each side for 2-3 minutes
-after the baking.
+* I use a 1/4c measuring cup to form each patty for a consistent shape. Cook times may vary depending on the size of the patty formed.
