@@ -31,3 +31,5 @@
 
 ### Notes
 If intending to freeze some of the soup, it is best to do so without the tortellini spinach.
+
+[Original recipe](https://thrivinghomeblog.com/italian-sausage-tortellini-soup/)
