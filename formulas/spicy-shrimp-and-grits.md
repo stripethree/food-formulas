@@ -1,7 +1,7 @@
 # Spicy Shrimp and Grits
 
 ### Components
-* 1 pound frozen shrimp, thawed, tails removed
+* 1 lb frozen shrimp, thawed, tails and shells removed
 * 1 c uncooked instant grits
 * 1 c shredded Monterey Jack cheese
 * 1 c shredded cheddar cheese
