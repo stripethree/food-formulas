@@ -19,7 +19,7 @@
 * Preheat oven to 425ºF
 * Cook pasta in large pot of boiling salted water, stirring occasionally, until al dente
 * Slice onion, fennel bulb, and shallot into 1/2" thick wedges
-* Toss sliced veggies in olive oil on rimmed baking sheet; spread into single layer
+* Toss sliced veggies in 2 tbsp olive oil on rimmed baking sheet; spread into single layer
 * Season veggies with salt and pepper
 * Remove sausages from casing
 * Pinch sausage into small pieces and scatter around sliced veggies
