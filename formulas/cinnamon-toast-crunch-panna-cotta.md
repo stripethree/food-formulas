@@ -29,9 +29,10 @@ _Panna Cotta_
 When cool, cover and refrigerate for at least 4 hours
 
 ### Notes
+- The _Cereal Milk_ portion of the recipe often yields enough for two iterations of the _Panna Cotta_
+- Serving suggestion: toast some additional cereal and crumble it on top
 
-I often serve this with some additional toasted and crumbled cereal on top.
-
-https://www.seriouseats.com/recipes/2011/10/momofuku-milk-bars-cereal-milk-recipe.html
-https://www.gourmettraveller.com.au/recipes/browse-all/cereal-milk-panna-cotta-11198
-https://www.foodnetwork.com/recipes/sandra-lee/vanilla-almond-panna-cotta-recipe-1949908
+Various recipes inspried this creation:
+- [Momofuku Milk Bar's Cereal Milk Recipe](https://www.seriouseats.com/recipes/2011/10/momofuku-milk-bars-cereal-milk-recipe.html)
+- [Christina Tosi's Cereal Milk Panna Cotta](https://www.gourmettraveller.com.au/recipes/browse-all/cereal-milk-panna-cotta-11198)
+- [Sandra Lee's Vanilla-Almond Panna Cotta](https://www.foodnetwork.com/recipes/sandra-lee/vanilla-almond-panna-cotta-recipe-1949908)
