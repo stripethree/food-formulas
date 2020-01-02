@@ -3,11 +3,12 @@
 ### Components
 
 * 20 oz frozen chopped spinach
-* 4 large eggs or equivalent egg replacer
+* 2 large eggs
 * 1/2 c minced onion
 * 3/4 c grated parmesan cheese
-* 3/4 c lightly salted butter
+* 3/4 c unsalted butter
 * 1/2 tsp dried thyme
+* 3/4 tsp salt
 * 1/4 tsp black pepper
 * 1/4 tsp ground nutmeg
 * 2 1/2 cups crumb type herb stuffing mix
@@ -23,4 +24,6 @@
 * Can be cooled, wrapped and frozen. Reheat on a baking sheet approx. 10 - 15 min.
 
 ### Notes
-Neat Egg suffices as a good enough binding substitute without compromising flavor. I tend to think this recipe could use a little salt. I also sometimes like to use pre-seasoned/Italian style bread crumbs.
+Egg substitutes:
+- [Neat Egg](https://atlanticnaturalfoods.com/dima-portfolio/neat-the-neat-egg-substitute/) works well
+- [Just Egg](https://www.ju.st/en-us/get-just-egg) works even better
