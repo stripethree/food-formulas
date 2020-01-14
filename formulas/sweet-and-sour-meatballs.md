@@ -28,3 +28,5 @@
 ### Notes
 - [Original recipe](https://www.allrecipes.com/recipe/26673/the-best-sweet-and-sour-meatballs/)
 - Add onion soup mix to meat?
+- Use crushed pineapple in the sauce?
+- Powdered substitutes like Neat Egg and Red Mill Egg Replacer bind okay but the texture is off; using [Just Egg](https://www.ju.st/en-us/get-just-egg) as a substitute is preferred as it yeilds a more dense texture
