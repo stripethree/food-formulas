@@ -24,4 +24,4 @@ Flatten each ball slightly with the palm of your hand - just barely press, you d
 * Let the cookies cool for a few minutes on the baking sheet and then transfer to a cooling rack to cool completely.
 
 ### Notes
-This delicious, egg-free recipe courtesy of Jillian Zilch!
+This delicious, egg-free recipe courtesy of Jillian Zilch! Yields ~45 cookies.
