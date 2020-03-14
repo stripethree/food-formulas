@@ -15,7 +15,7 @@
 * 1/4 teaspoon black pepper
 * 2 bay leaves
 * 1 lb chicken, cooked and shredded
-* 1 (15 oz) can whole peeled tomatoes
+* 1 (15 oz) can chopped peeled tomatoes
 * 1 (10 oz) can enchilada sauce
 * 4 c low sodium beef broth
 * 4 c low sodium chicken broth
