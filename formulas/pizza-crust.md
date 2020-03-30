@@ -4,8 +4,8 @@
 
 * 3 c flour
 * 2 teaspoons (1 packet) instant yeast
-* 1 teaspoon olive oil
-* 2 teaspoon kosher salt
+* 1/2 tablespoon olive oil
+* 3/4 teaspoon kosher salt
 * 1 teaspoon garlic powder
 * 1 teaspoon Italian seasoning
 * 1 1/3 cups warm water
