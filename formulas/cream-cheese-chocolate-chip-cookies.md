@@ -3,7 +3,7 @@
 ### Components
 
 * 8 oz cream cheese, softened
-* 16 tbs butter, melted and cooled
+* 1 c butter, melted and cooled
 * 1 1/3 c packed light brown sugar
 * 2/3 c granulated sugar
 * 1 tbs vanilla extract
