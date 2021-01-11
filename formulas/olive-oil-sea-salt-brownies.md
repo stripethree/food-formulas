@@ -5,7 +5,7 @@
 * 6 tbs extra-virgin olive oil
 * 1 c all purpose flour
 * 3/4 tsp kosher salt
-* 1/4 tsp backing powder
+* 1/4 tsp baking powder
 * 1/4 c Dutch-processed cocoa powder
 * 1/4 c boiling water
 * 3 oz unsweetened chocolate, melted
