@@ -3,14 +3,14 @@
 ### Components
 
 * 2/3 c unflavored almond milk
-* 1/2 c rolled oats
+* 1/3 c rolled oats
 * 1/4 tsp salt
 * 1 tsp brown sugar
 * 1 tbs cup coconut oil
-* 2 tbs maple syrup
+* 1 tbs maple syrup
 * 1/8 tsp cinnamon
 * 1/8 tsp vanilla
-* 2 medium bananas, sliced
+* 2 small bananas, sliced
 
 ### Assembly
 * In a small saucepan, bring almond milk to a boil over medium high heat
