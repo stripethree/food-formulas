@@ -8,7 +8,7 @@
 * 1 medium red pepper
 * 2 ts chopped garlic
 * 1 1/2 ts cumin
-* 1 tbs line juice
+* 1 tbs lime juice
 * 1 ts Himalayan salt
 * 2 c water
 * 4 c chicken broth
