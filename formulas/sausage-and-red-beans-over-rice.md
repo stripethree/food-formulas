@@ -2,16 +2,21 @@
 
 ### Components
 
-* Andouille Sausage
-* Olive oil
-* Onion
-* Bell Pepper
-* Garlic
-* Canned kidney beans
-* Canned tomatoes with green chilis
-* Spices (Italian seasoning, chili powder, garlic salt, paprika, bay leaves)
-* Chicken broth
-* Jasmine rice
+* 1 lb Andouille Sausage
+* 1 Tbsp olive oil
+* 1 small yellow onion
+* 1 green bell pepper
+* 2 cloves garlic
+* 1 15-oz can red beans
+* 1 15-oz can dark red kidney beans
+* 1 10-oz can tomatoes with green chilis
+* 1 tsp Italian seasoning
+* 1 tsp chili powder
+* 1/4 tsp garlic salt
+* 1/4 tsp paprika
+* 2 C chicken broth
+* 2 bay leaves
+* 1 C jasmine rice
 
 ### Assembly
 
